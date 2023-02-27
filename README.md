@@ -1,0 +1,1 @@
+# Eqaim_Technolgy_Assignment
